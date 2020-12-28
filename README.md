@@ -31,6 +31,8 @@ This Yamaha FG403S is very well made. Fit and finish is pretty much perfect. The
 
 The guitar was (and is) so nice I couldn't justify throwing it in the trunk and leaving it there, so my plan for a throwaway travel guitar didn't really work out. Instead, I have a pretty nice flattop guitar (my first).
 
+**I've watched a number of YouTube videos where somebody compares a $3,000 Martin or Gibson flattop with a $200 guitar, and while I can tell the difference, the cheaper guitar is generally a whole lot closer to the expensive one than you'd think. Or then *I'd* think anyway.**
+
 The Yamaha is a fairly standard dreadnought guitar with a 25.5-inch scale — the same as Fender electric guitars. It shipped with medium-light (.012 high E) phosphor bronze strings, which I left on the guitar for many years, it turns out.
 
 A couple of years ago, I started playing the guitar again, and I bought a set of Ernie Ball Earthwood Medium (.013 high E) 80/20 Bronze strings. I thought the thicker strings would mimic what I have on my Gibson ES-175. It was my first time changing strings on a flattop, and I used the bridge-pin puller on the plastic string winder I bought when I was around 9 or 10 years old; I've had that thing a long time. Only one bridge pin shot out and hit the ceiling. I learned something that day about bridge pins.
@@ -39,4 +41,26 @@ Once I had the medium-gauge strings on the Yamaha, the action got very high. I h
 
 I changed the strings again about a month ago. The low E string was sounding kind of dead. This time I went for Ernie Ball Earthwood Medium-Light (.012) 80/20 Bronze strings. I've been going "lighter" on all my guitars (Classical, solidbody, archtop) and wanted to do the same with the flattop.
 
-The new strings sound great. Very piano-like in their attack. The low E is much better. I think there's something about the guitar's build that "constricts" the sound of the low E string. It's not quite a wolf-tone situation, but I get the feeling that the bracing is keeping the string and the notes on the first five frets from vibrating the top too much.
+The new strings sound great. Very piano-like in their attack. The low E is much better. I think there's something about the guitar's build that "constricts" the sound of the low E string. It's not quite a wolf-tone situation, but I get the feeling that the bracing is keeping the string and the notes on the first five frets from vibrating the top too much. I don't have a lot of experience with flattops, and I'll have to play a bunch and see how the low E string responds on them.
+
+Still, the Yamaha's new, lighter strings do sound better, including the low E, and they still have that pianistic edge after a month. I'm very enamored with the sound and have been playing it quite a bit.
+
+I didn't have to crank the truss rod at all.
+
+When I "push" the guitar, folk-strumming style, there's no problem with the low E, and the guitar is crazy loud. You don't hear any issues when wailing on the strings.
+
+Most of my playing these days is jazz tunes and practicing from method books like William Leavitt's "Modern Method for Guitar" and Ted Greene's "Single Note Soloing," and I'm using a much lighter touch. Another way to say this is that I'm playing the guitar quietly, not digging it. That's when you can hear and feel the low E string being constricted, but maybe that's the guitar's way of keeping the low E from overpowering the other strings. It is a very even sounding guitar across the strings, so maybe that's the idea behind how the guitar is braced and voiced.
+
+Intonation across the fretboard is excellent, and the guitar plays and stays in tune. The woods are very nice and perfectly finished. Aside from the solid spruce top, the back, sides and neck are made from [nato](https://en.wikipedia.org/wiki/Nato_wood), a dense wood that looks similar to mahogany.
+
+The bridge saddle and nut are good quality plastic, the compensation in the saddle is very likely a large part of why the intonation is so good.
+
+The tuning machines work well. They are better than I'd expect from a $200 guitar.
+
+The body finish is glossy, but the neck has a matte finish, which is perfect for sliding the left hand across the fretboard without sticking. The fingerboard is rosewood, which is a nice feature for a guitar in this price range. Frets are finished *pretty* well. Nothing to complain about, but a pro could smooth the edges near the ends. Still it's not bad for the fingers or hands.
+
+When I'm playing single notes, especially with the .012 80/20 bronze strings, the pianistic/bell-like sound is archtop-ish enough to keep me playing the Yamaha. When I play a jazz chord, it still sounds like a flattop and not an acoustic (or electric) archtop, and that is to be expected.
+
+But those notes sound pretty good — credit the solid spruce top and 80/20 strings — and I have a really nice, still-cheap guitar to practice on. I had no idea it was 17 years old. You could put it on the wall at Guitar Center and nobody would know it didn't come right out of the box.
+
+Is it "opening up"? I don't know. Maybe. I'll get back to you.
