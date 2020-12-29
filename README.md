@@ -33,7 +33,7 @@ The guitar was (and is) so nice I couldn't justify throwing it in the trunk and 
 
 **I've watched a number of YouTube videos where somebody compares a $3,000 Martin or Gibson flattop with a $200 guitar, and while I can tell the difference, the cheaper guitar is generally a whole lot closer to the expensive one than you'd think. Or then *I'd* think anyway.**
 
-The Yamaha is a fairly standard dreadnought guitar with a 25.5-inch scale — the same as Fender electric guitars. It shipped with medium-light (.012 high E) phosphor bronze strings, which I left on the guitar for many years, it turns out.
+The Yamaha is a fairly standard dreadnought guitar with a 25.6-inch scale — the same as Fender electric guitars. It shipped with medium-light (.012 high E) phosphor bronze strings, which I left on the guitar for many years, it turns out.
 
 A couple of years ago, I started playing the guitar again, and I bought a set of Ernie Ball Earthwood Medium (.013 high E) 80/20 Bronze strings. I thought the thicker strings would mimic what I have on my Gibson ES-175. It was my first time changing strings on a flattop, and I used the bridge-pin puller on the plastic string winder I bought when I was around 9 or 10 years old; I've had that thing a long time. Only one bridge pin shot out and hit the ceiling. I learned something that day about bridge pins.
 
