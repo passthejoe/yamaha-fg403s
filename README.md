@@ -57,7 +57,7 @@ The bridge saddle and nut are good quality plastic, the compensation in the sadd
 
 The tuning machines work well. They are better than I'd expect from a $200 guitar.
 
-The body finish is glossy, but the neck has a matte finish, which is perfect for sliding the left hand across the fretboard without sticking. The fingerboard is rosewood, which is a nice feature for a guitar in this price range. Frets are finished *pretty* well. Nothing to complain about, but a pro could smooth the edges near the ends. Still it's not bad for the fingers or hands.
+The body finish is glossy, but the neck has a matte finish, which is perfect for sliding the left hand across the fretboard without sticking. The fingerboard and bridge are made of rosewood, which is a nice feature for a guitar in this price range. Frets are finished *pretty* well. Nothing to complain about, but a pro could smooth the edges near the ends. Still it's not bad for the fingers or hands.
 
 When I'm playing single notes, especially with the .012 80/20 bronze strings, the pianistic/bell-like sound is archtop-ish enough to keep me playing the Yamaha. When I play a jazz chord, it still sounds like a flattop and not an acoustic (or electric) archtop, and that is to be expected.
 
