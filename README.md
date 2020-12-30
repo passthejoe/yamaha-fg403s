@@ -25,7 +25,7 @@ My original intention was to get a $99 guitar with a laminated top. At the time,
 
 I had never owned a steel-string acoustic guitar before. Once I started shopping, I learned that acoustic guitars with solid tops sounded better, and these models didn't cost that much more than those with laminated tops.
 
-Guitar Center was listing this guitar in their ads for $199.99 (with a retail price of $299 according to [Yamaha Vintage FG Acoustic Guitars](http://yamahavintagefg.com/wp-content/uploads/2017/09/Yamaha-Acoustic-Guitar-Archive-v6.4.3.xlsx), and I eventually went down to the store, played a bunch of guitars and bought this one. They don't give you the floor model. Instead they get you an unplayed guitar in the box. They unpacked it and put it in the gig bag, and I took it home.
+Guitar Center was listing this guitar in their ads for $199.99 (with a retail price of $299 according to [Yamaha Vintage FG Acoustic Guitars](http://yamahavintagefg.com/wp-content/uploads/2017/09/Yamaha-Acoustic-Guitar-Archive-v6.4.3.xlsx)), and I eventually went down to the store, played a bunch of guitars and bought this one. They don't give you the floor model. Instead they get you an unplayed guitar in the box. They unpacked it and put it in the gig bag, and I took it home.
 
 This Yamaha FG403S is very well made. Fit and finish is pretty much perfect. There's a little bit of glue and some kind of mesh visible on the brace near the bottom of the soundhole, but otherwise it's a very well-built guitar. I haven't played it all that much, and it looks as good 17 years later as the day I bought it.
 
