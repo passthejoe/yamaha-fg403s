@@ -64,3 +64,7 @@ When I'm playing single notes, especially with the .012 80/20 bronze strings, th
 But those notes sound pretty good — credit the solid spruce top and 80/20 strings — and I have a really nice, still-cheap guitar to practice on. I had no idea it was 17 years old. You could put it on the wall at Guitar Center and nobody would know it didn't come right out of the box.
 
 Is it "opening up"? I don't know. Maybe. I'll get back to you.
+
+-------------
+
+The equivalent guitar today is the [Yamaha FG800](https://guitarsignal.com/best-acoustic-guitar/yamaha-fg800-review/), which is selling for [$199 from Sweetwater](https://www.sweetwater.com/store/detail/FG800--yamaha-fg800-dreadnought-natural) as of Dec. 29, 2020.
