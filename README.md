@@ -9,7 +9,7 @@ If you asked me last week to tell you when I bought this guitar, I would have sa
 
 This week I wrote down the serial number from inside the guitar and went on the Web to see what I could find.
 
-Yamaha is very good about serial numbers corresponding to production dates, and it turns out that my Yamaha FG403S acoustic guitar was made in Taiwan on Dec. 5, 2003.
+Yamaha is very good about serial numbers corresponding to production dates, and it turns out that my Yamaha FG403S acoustic guitar was made in Taiwan on Dec. 5, 2003. (According to Elite Vintage Guitars, [this model was made from 2002-4](https://elitevintageguitars.com/category/yamaha-fg-403ms/))
 
 2003?? So when did I buy it?
 
@@ -25,7 +25,7 @@ My original intention was to get a $99 guitar with a laminated top. At the time,
 
 I had never owned a steel-string acoustic guitar before. Once I started shopping, I learned that acoustic guitars with solid tops sounded better, and these models didn't cost that much more than those with laminated tops.
 
-Guitar Center was listing this guitar in their ads for $199.99, and I eventually went down to the store, played a bunch of guitars and bought this one. They don't give you the floor model. Instead they get you an unplayed guitar in the box. They unpacked it and put it in the gig bag, and I took it home.
+Guitar Center was listing this guitar in their ads for $199.99 (with a retail price of $299 according to [Yamaha Vintage FG Acoustic Guitars](http://yamahavintagefg.com/wp-content/uploads/2017/09/Yamaha-Acoustic-Guitar-Archive-v6.4.3.xlsx), and I eventually went down to the store, played a bunch of guitars and bought this one. They don't give you the floor model. Instead they get you an unplayed guitar in the box. They unpacked it and put it in the gig bag, and I took it home.
 
 This Yamaha FG403S is very well made. Fit and finish is pretty much perfect. There's a little bit of glue and some kind of mesh visible on the brace near the bottom of the soundhole, but otherwise it's a very well-built guitar. I haven't played it all that much, and it looks as good 17 years later as the day I bought it.
 
@@ -33,7 +33,7 @@ The guitar was (and is) so nice I couldn't justify throwing it in the trunk and 
 
 **I've watched a number of YouTube videos where somebody compares a $3,000 Martin or Gibson flattop with a $200 guitar, and while I can tell the difference, the cheaper guitar is generally a whole lot closer to the expensive one than you'd think. Or then *I'd* think anyway.**
 
-The Yamaha is a fairly standard dreadnought guitar with a 25.6-inch scale — the same as Fender electric guitars. It shipped with medium-light (.012 high E) phosphor bronze strings, which I left on the guitar for many years, it turns out.
+The Yamaha is a fairly standard dreadnought guitar with a 650 mm/25.6-inch scale — the same as Fender electric guitars. It shipped with medium-light (.012 high E) phosphor bronze strings, which I left on the guitar for many years, it turns out.
 
 A couple of years ago, I started playing the guitar again, and I bought a set of Ernie Ball Earthwood Medium (.013 high E) 80/20 Bronze strings. I thought the thicker strings would mimic what I have on my Gibson ES-175. It was my first time changing strings on a flattop, and I used the bridge-pin puller on the plastic string winder I bought when I was around 9 or 10 years old; I've had that thing a long time. Only one bridge pin shot out and hit the ceiling. I learned something that day about bridge pins.
 
