@@ -31,7 +31,7 @@ This Yamaha FG403S is very well made. Fit and finish is pretty much perfect. The
 
 The guitar was (and is) so nice, I couldn't justify chucking it in the trunk and leaving it there, so my plan for a throwaway travel guitar didn't really work out. Instead, I have a pretty nice flattop guitar (my first).
 
-**I've watched a number of YouTube videos where somebody compares a $3,000 Martin or Gibson flattop with a $200 guitar, and while I can tell the difference, the cheaper guitar is generally a whole lot closer to the expensive one than you'd think. Or then *I'd* think anyway.**
+I've watched a number of YouTube videos where somebody compares a $3,000 Martin or Gibson flattop with a $200 guitar, and while I can tell the difference, the cheaper guitar is generally a whole lot closer to the expensive one than you'd think. Or then *I'd* think anyway.
 
 The Yamaha is a fairly standard dreadnought guitar with a 650 mm/25.6-inch scale — the same as Fender electric guitars. It shipped with medium-light (.012 high E) phosphor bronze strings, which I left on the guitar for many years, it turns out.
 
