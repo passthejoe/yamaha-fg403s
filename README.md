@@ -67,7 +67,7 @@ Is it "opening up"? I don't know. Maybe. I'll get back to you.
 
 -------------
 
-The equivalent guitar today is the [Yamaha FG800](https://guitarsignal.com/best-acoustic-guitar/yamaha-fg800-review/), which is selling for [$199.99 from Sweetwater](https://www.sweetwater.com/store/detail/FG800--yamaha-fg800-dreadnought-natural) as of Dec. 29, 2020. The guitar also sells for (https://www.musiciansfriend.com/guitars/yamaha-fg800-folk-acoustic-guitar)[$199.99 at Musician's Friend].
+The equivalent guitar today is the [Yamaha FG800](https://guitarsignal.com/best-acoustic-guitar/yamaha-fg800-review/), which is selling for [$199.99 from Sweetwater](https://www.sweetwater.com/store/detail/FG800--yamaha-fg800-dreadnought-natural) as of Dec. 29, 2020. The guitar also sells for [$199.99 at Musician's Friend](https://www.musiciansfriend.com/guitars/yamaha-fg800-folk-acoustic-guitar).
 
 -------------
 
