@@ -68,3 +68,17 @@ Is it "opening up"? I don't know. Maybe. I'll get back to you.
 -------------
 
 The equivalent guitar today is the [Yamaha FG800](https://guitarsignal.com/best-acoustic-guitar/yamaha-fg800-review/), which is selling for [$199 from Sweetwater](https://www.sweetwater.com/store/detail/FG800--yamaha-fg800-dreadnought-natural) as of Dec. 29, 2020.
+
+-------------
+
+**Jan. 22, 2021**
+
+I have been playing this as my main guitar since this review was started. The strings have retained much of their bell-like quality. They have mellowed a little, but there's still a crispness.
+
+I had been thinking that maybe something about the guitar's design or build made the low E string a little tubby, but it really comes down to the strings being new and my technique on this particular guitar. Since I'm playing this instrument every day, I'm getting better at controlling the low E string and getting a good sound out of it. It's not like I'm spending a lot of time. I'm playing maybe 15 to 25 minutes a day.
+
+When you play the same guitar all the time, you get more comfortable with it. The scale length gets into your muscle memory. The neck is familiar. Your right-hand "attack" on the strings improves.
+
+Even though my practice is focused on jazz and standard tunes and learning patterns and scales, I'm sticking with this guitar instead of pulling out an electric. It's easier to get the guitar out and start playing without needing to fiddle with amplifiers and cords. You just pick the string (I'm using D'Andrea 1.21mm picks, as well as D'Andrea ProPlec) and get a nice sound. As I've said in my review of the Ernie Ball Earthwood strings, I even love the feel of my fingers on the wound strings.
+
+It's nice to pick up a guitar where the build is so nice, it's in tune and it's very even-sounding, even the low E. It's just a matter of "hitting" it right.
