@@ -75,7 +75,7 @@ The equivalent guitar today is the [Yamaha FG800](https://guitarsignal.com/best-
 
 I have been playing this as my main guitar since this review was started. The strings have retained much of their bell-like quality. They have mellowed a little, but there's still a crispness.
 
-I had been thinking that maybe something about the guitar's design or build made the low E string a little tubby, but it really comes down to the strings being new and my technique on this particular guitar. Since I'm playing this instrument every day, I'm getting better at controlling the low E string and getting a good sound out of it. It's not like I'm spending a lot of time. I'm playing maybe 15 to 25 minutes a day.
+I had been thinking that maybe something about the guitar's design or build made the low E string a little tubby. I don't feel that way now. Between the new strings and getting more comfortable with the instrument, I'm getting a good sound out of the low E. It's not like I'm spending a lot of time. I'm playing maybe 15 to 25 minutes a day.
 
 When you play the same guitar all the time, you get more comfortable with it. The scale length gets into your muscle memory. The neck is familiar. Your right-hand "attack" on the strings improves.
 
