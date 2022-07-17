@@ -29,7 +29,7 @@ Guitar Center was listing this guitar in their ads for $199.99 (with a retail pr
 
 This Yamaha FG403S is very well made. Fit and finish is pretty much perfect. There's a little bit of glue and some kind of mesh visible on the brace near the bottom of the soundhole, but otherwise it's a very well-built guitar. I haven't played it all that much, and it looks as good 17 years later as the day I bought it.
 
-The guitar was (and is) so nice, I couldn't justify chucking it in the trunk and leaving it there, so my plan for a throwaway travel guitar didn't really work out. Instead, I have a pretty nice flattop guitar (my first).
+The guitar was (and is) so nice, I couldn't justify chucking it in the trunk and leaving it there, so my plan for a throwaway travel guitar didn't really work out. Instead, I have a pretty nice flattop guitar (my first). (Plus I don't "go" to work. Even before COVID I barely made it into the office two days a week. Now there's no more office. I work at home.)
 
 I've watched a number of YouTube videos where somebody compares a $3,000 Martin or Gibson flattop with a $200 guitar, and while I can tell the difference, the cheaper guitar is generally a whole lot closer to the expensive one than you'd think. Or then *I'd* think anyway.
 
