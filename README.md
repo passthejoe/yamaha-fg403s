@@ -82,3 +82,7 @@ When you play the same guitar all the time, you get more comfortable with it. Th
 Even though my practice is focused on jazz and standard tunes and learning patterns and scales, I'm sticking with this guitar instead of pulling out an electric. It's easier to get the guitar out and start playing without needing to fiddle with amplifiers and cords. You just pick the string (I'm using D'Andrea 1.21mm picks, as well as D'Andrea ProPlec) and get a nice sound. As I've said in my review of the Ernie Ball Earthwood strings, I even love the feel of my fingers on the wound strings.
 
 It's nice to pick up a guitar where the build is so nice, it's in tune and it's very even-sounding, even the low E. It's just a matter of "hitting" it right.
+
+**July 1, 2023**
+
+I have a nice set of D'Addario phosphor bronze (.012) strings — [the EJ16 set](https://www.daddario.com/products/guitar/acoustic-guitar/phosphor-bronze/ej16-phosphor-bronze-acoustic-guitar-strings-light-12-53/) — on the guitar, and it sounds great. 
